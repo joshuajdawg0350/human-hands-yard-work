@@ -13,4 +13,4 @@ Work as a Hand: https://jdawgsindustries.com/human-hands/work.html
 
 No ads. We never sell your information.
 
-© J-Dawgs Industries
+© J-Dawgs Industries LLC
